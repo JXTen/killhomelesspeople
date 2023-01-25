@@ -1,7 +1,7 @@
-# Lmao
+# Fuck homeless people
 
-My bals
+They contribute nothing to society. They are useless
 
-# Lol
+# We should eliminate them all
 
-Girls give me headaches, boys give me head
+hashtag killthehomeless!!!!!1!!
